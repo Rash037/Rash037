@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning C++
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me = zerovamp888@gmail.com
-- 😄 Pronouns: He/Him
+- 😄 Pronouns: they/them
 - ⚡ Fun fact: I'm 18yo lol
 - you can find me on instagram its @zero_dynesty
 
